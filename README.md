@@ -10,4 +10,4 @@
   
 🕊 Twitter: https://twitter.com/StonkDragon
 
-😄 Pronouns: he/him
+😄 Pronouns: he/they
